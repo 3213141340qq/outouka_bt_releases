@@ -5,7 +5,7 @@ We will post the resources of our subtitle group here.We are Cherry Blossom Subt
 
 We are translating 《Tying the Knot with an Amagami Sister》 (in Japanese, it's 甘神さんちの縁結び) and the live-action version of 《Wing-Man》 (in Japanese, it's ウイングマン実写ドラマ) right now. The projects we translate are decided by members' votes, as we are democratic and free.    
   
-The following text is only in chinese:  
+The following text is in chinese only:  
 本字幕组主要制作动漫/特摄的双语字幕，是一个全凭兴趣来用爱发电的非盈利字幕组，现在急需有耐心有责任心的人员，并能坚持长期工作（学业为重）  
 招新信息：  
 翻译：能听懂大部分日语，有足够空闲时间，不需要证书  
